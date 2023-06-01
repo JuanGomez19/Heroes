@@ -1,4 +1,4 @@
 ## Heroes
-# Juan Gomez
+# Juan Gomez, San Miguel , 32 años
 #
 #
